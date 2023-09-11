@@ -1,5 +1,5 @@
 
-.Net Specialist
+.Net Developer
 
 
 ## 🌐 Socials:
